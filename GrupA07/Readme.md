@@ -3,11 +3,14 @@
 ## Información del Equipo
 
 **Líder del Equipo:**  
+
 -[CV-DANIEL MG](DANIELMG.md)
 
 **Miembros del Equipo:**  
 -[CV-JOAN](JOAN.md)
+
 -[CV-RUI](RUI.md)
+
 -[CV-DANIEL G](DANIELG.md)
 
 ---
