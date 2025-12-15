@@ -1,78 +1,20 @@
-CURRÍCULUM VITAE
-Nombre
-DANIEL
+Carta de Presentación
 
-Alias profesional: El Último Héroe
+Estimado/a responsable de selección:
 
-Perfil Profesional
+Mi nombre real permanece clasificado, aunque durante más de una década he sido conocido profesionalmente como El Último Héroe. Me dirijo a usted para presentar mi candidatura tras haber finalizado con éxito mi anterior etapa laboral, cuyo principal objetivo fue la erradicación total de villanos a escala global.
 
-Superhéroe veterano con más de una década de experiencia salvando el mundo, eliminando amenazas globales y resolviendo crisis imposibles. Tras la erradicación total de villanos a nivel mundial, busco nuevos desafíos en el mercado laboral para combatir el aburrimiento y aplicar mis habilidades extraordinarias en un entorno corporativo.
+Entre los años 2012 y 2025 he desempeñado el cargo de Salvador del Mundo Senior, liderando y ejecutando operaciones críticas en los cinco continentes. Durante este periodo, neutralicé amenazas de alto impacto como Dr. Caos en Europa, desmantelando su sistema de control mental; La Reina del Veneno en Sudamérica, eliminando su red de toxinas en la Amazonía; y El Señor del Tiempo en Asia, evitando un colapso temporal global en Tokio tras múltiples líneas temporales.
 
-Experiencia Laboral
-Salvador del Mundo Senior
+Asimismo, llevé a cabo la Operación Océano Silencioso en Oceanía, donde detuve al Kraken Negro antes de que hundiera varios continentes, y la Misión Última Noche en África, cerrando un portal interdimensional y poniendo fin definitivo a la existencia del Rey del Vacío. Como resultado de estas intervenciones, el mundo se encuentra actualmente en un estado de paz global, con cero villanos activos.
 
-Planeta Tierra | 2012 – 2025
+Gracias a mi experiencia internacional, domino varios idiomas según los territorios liberados: inglés y español a nivel fluido, francés y japonés a nivel avanzado, además de latín antiguo básico y un lenguaje alienígena a nivel conversacional. Aporto habilidades clave como la resolución de conflictos extremos, liderazgo bajo presión apocalíptica, pensamiento estratégico global y una gran capacidad de adaptación, incluso en condiciones de privación de sueño.
 
-Derroté a Dr. Caos (Europa):
-Neutralicé su imperio de control mental infiltrándome en su fortaleza subterránea en los Alpes. Finalizado el proyecto tras un combate cuerpo a cuerpo y la destrucción de su servidor central (y de él, accidentalmente).
+Entre mis principales logros destacan haber salvado el mundo en 17 ocasiones confirmadas, haber reducido el crimen global al 0% y haber evitado tres fines del mundo antes del desayuno, manteniendo siempre una puntualidad impecable (el control del tiempo ayuda).
 
-Eliminé a La Reina del Veneno (Sudamérica):
-Desmantelé su red de tráfico de toxinas en la Amazonía. El proyecto terminó cuando cayó en su propia trampa biológica durante una persecución aérea.
+Actualmente me encuentro en una nueva etapa profesional. Tras cumplir mi misión vital, experimento un alto grado de motivación por aplicar mis capacidades en un entorno laboral más convencional, preferiblemente uno que no implique la destrucción de la humanidad, pero que sí valore la responsabilidad, el compromiso y la experiencia en situaciones críticas.
 
-Proyecto “Tormenta Final” contra El Señor del Tiempo (Asia):
-Evité un colapso temporal global en Tokio. Tras una batalla a través de múltiples líneas temporales, el villano quedó atrapado en un bucle eterno del lunes por la mañana.
+Quedo a su disposición para ampliar cualquier información adicional.
 
-Operación Océano Silencioso vs. Kraken Negro (Oceanía):
-Amenazaba con hundir continentes. Resolví el conflicto en combate submarino. El Kraken fue derrotado definitivamente y convertido en leyenda marina.
-
-Misión Última Noche contra El Rey del Vacío (África):
-Entidad interdimensional. Cerré el portal a otra dimensión sacrificando mi capa favorita. El villano dejó de existir (y con él cualquier amenaza futura).
-
-Resultado final:
-✔️ 0 villanos activos en el mundo
-✔️ Paz global
-✔️ Mucho tiempo libre
-
-Idiomas (según territorios liberados)
-
-Inglés – Nivel nativo (EE. UU. y Reino Unido salvados múltiples veces)
-
-Español – Fluido (Latinoamérica y España liberadas)
-
-Francés – Avanzado (Francia rescatada de invasión robótica)
-
-Japonés – Avanzado (Tokio salvado en varias líneas temporales)
-
-Latín antiguo – Básico (hechizos, maldiciones y profecías)
-
-Lenguaje Alienígena Desconocido – Conversacional
-
-Habilidades
-
-Resolución de conflictos extremos
-
-Trabajo bajo presión apocalíptica
-
-Liderazgo en situaciones límite
-
-Combate cuerpo a cuerpo, aéreo y extradimensional
-
-Pensamiento estratégico global
-
-Adaptación rápida (incluso sin dormir)
-
-Logros Destacados
-
-Salvé el mundo 17 veces (confirmadas)
-
-Reduje el crimen global al 0%
-
-Evité 3 fines del mundo antes del desayuno
-
-Nunca llegué tarde (cuando controlas el tiempo, ayuda)
-
-Situación Actual
-
-Estado: Aburrido
-Motivo: No quedan villanos
-Objetivo: Encontrar un trabajo normal… o al menos uno que no implique el fin de la humanidad.
+Atentamente,
+El Último Héroe
